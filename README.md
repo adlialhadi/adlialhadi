@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @adlialhadi
 - 👀 I’m interested in world of technology
 - 🌱 I’m currently learning at SMKN 6 Padang
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 adlialhadi2710@gmail.com
+- 😄 Pronouns: .
 - ⚡ Fun fact: I like trying new things
 
 <!---
