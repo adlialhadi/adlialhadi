@@ -2,7 +2,7 @@
 - 👀 I’m interested in world of technology
 - 🌱 I’m currently learning at SMKN 6 Padang
 - 📫 adlialhadi2710@gmail.com
-- 😄 Pronouns: .
+- 😄 call me adli
 - ⚡ Fun fact: I like trying new things
 
 <!---
