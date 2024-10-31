@@ -1,5 +1,5 @@
 # 💫 Hi There, I'm Adli:
-🧑🏻‍🎓computer network and telecommunication engineering students!<br>
+🧑🏻‍🎓Department of Computer Network & Telecommunications Engineering!<br>
 📚I’m currently learning at SMKN 6 Padang<br>
 🎥Love to make videos on my [Instagram](https://instagram.com/adli_al_hadi)
 
