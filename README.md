@@ -1,7 +1,7 @@
 # 💫 Hi There, I'm Adli:
-🧑🏻‍🎓A Computer Science Student!<br>
+🧑🏻‍🎓I’m currently learning at SMKN 6 Padang
 📚Currently studying Data Science and Machine Learning<br>
-🎥Love to make videos about Computer Science on my [Instagram](https://instagram.com/adli_al_hadi)
+🎥Love to make videos on my [Instagram](https://instagram.com/adli_al_hadi)
 
 
 ## 🌐 Connect With Me:
