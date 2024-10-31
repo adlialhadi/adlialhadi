@@ -2,9 +2,7 @@
 🧑🏻‍🎓Department of Computer Network & Telecommunications Engineering!<br>
 📚I’m currently learning at SMKN 6 Padang<br>
 👀 I’m interested in world of technology<br>
-🌱 I’m currently learning at SMKN 6 Padang<br>
 📫 adlialhadi2710@gmail.com<br>
-😄 call me adli<br>
 ⚡ Fun fact: I like trying new things<br>
 🎥Love to make videos on my [Instagram](https://instagram.com/adli_al_hadi)
 
