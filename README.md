@@ -1,6 +1,7 @@
 # 💫 Hi There, I'm Adli:
-🧑🏻‍🎓Department of Computer Network & Telecommunications Engineering!<br>
-📚I’m currently learning at SMKN 6 Padang<br>
+🧑🏻‍🎓Department of Information Technology!<br>
+🧑‍💻Study program Computer Engineering
+📚I’m currently learning at Politeknik Negeri Padang<br>
 👀 I’m interested in world of technology<br>
 📫 adlialhadi2710@gmail.com<br>
 ⚡ Fun fact: I like trying new things<br>
