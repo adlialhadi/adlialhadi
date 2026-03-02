@@ -1,6 +1,6 @@
 # 💫 Hi There, I'm Adli:
 🧑🏻‍🎓Department of Information Technology!<br>
-🧑‍💻Study program Computer Engineering
+🧑‍💻Study program Computer Engineering<br>
 📚I’m currently learning at Politeknik Negeri Padang<br>
 👀 I’m interested in world of technology<br>
 📫 adlialhadi2710@gmail.com<br>
