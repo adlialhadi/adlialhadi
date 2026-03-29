@@ -3,7 +3,7 @@
 🧑‍💻Study program Computer Engineering<br>
 📚I’m currently learning at Politeknik Negeri Padang<br>
 👀 I’m interested in world of technology<br>
-📫 adlialhadi2710@gmail.com<br>
+📫 adlialhadi276@gmail.com<br>
 ⚡ Fun fact: I like trying new things<br>
 🎥Love to make videos on my [Instagram](https://instagram.com/adli_al_hadi)
 
